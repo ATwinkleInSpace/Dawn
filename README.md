@@ -18,7 +18,7 @@ This is where DeRoad - Round 2 officially starts
 
 Clues distribution has its own meaning
 
-The answers will also be the hints, so notting them down is suggested
+The answers will also be hints, so notting them down is suggested
 
 THEY AREN'T WHAT THEY SEEM TO BE
 
