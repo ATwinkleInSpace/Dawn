@@ -12,16 +12,11 @@ but a Singularity
 
 
 
-INSTRUCTION: //read this carefully
 
-This is where DeRoad - Round 2 officially starts
 
-Clues distribution has its own meaning
+IT IS NOT WHAT IT SEEMS TO BE
 
-The answers will also be hints, so notting them down is suggested
-
-THEY AREN'T WHAT THEY SEEM TO BE
-
+THE END IS NIGH
 
 Be patient
 
