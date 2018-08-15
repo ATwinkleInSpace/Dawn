@@ -22,4 +22,6 @@ Be patient
 
 
 Good luck.
+
+Rules: passwords are all in lowercase. "space" digits exist in the passwords
 </pre>
